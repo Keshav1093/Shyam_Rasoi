@@ -1,6 +1,6 @@
 WEBSITE DISCLAIMER
 
-The information provided by Shyam_Rasoi on https://shyamrasoi.ccom (the “Site”)
+The information provided by Shyam_Rasoi on https://shyamrasoi.com (the “Site”)
 is for general Youtube Channel. Content provided in good faith, however we make no 
 representation or warranty of any kind, express or implied, regarding the accuracy, adequacy, validity, reliability, 
 availability or completeness of any information on the Site. UNDER NO CIRCUMSTANCE SHALL WE HAVE ANY LIABILITY TO YOU 
